@@ -1,4 +1,4 @@
-# BugDomain
+# BuyDomain
 前些年搞得一些域名，大家看看有没有喜欢的，可以直接购买哈。
 http://shengshui.com/?p=5463
 
